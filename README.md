@@ -11,8 +11,8 @@ I've learned a lot at school, but I'm constantly grinding to push my skills to t
 I've built a solid foundation, and I'm now looking for an internship where I can apply my skills and continue grinding my craft.
 
 **Fun Facts:**
-  - I have two cats.
+  - I'm a foodie and I love cooking
   - I don't like coffee, but I'd die for a good cup of tea !
   - **The Mask** is my favorite movie
-  - Hobbies: Anime, Gym, and building things.
+  - Hobbies: Anime, Gym, and building things
 
